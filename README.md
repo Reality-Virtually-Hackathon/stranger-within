@@ -17,3 +17,6 @@ Being able to include a community in this case which was the Boys and Girls Club
 Not to judge a book by its cover.  Technology has a way to connect us and immerse us into situations we would normally want to avoid due to our misunderstandings of communities we don't have regular contact with.
 ## What's next for Strangers With Us
 Explore more interactive manners to further explore this seem and create greater empathy and understanding.  We want to create a better sense of community.
+
+The resources used
+https://drive.google.com/file/d/0B4lC0J1XSXYaM05RcDJMbGdPUk0/view?usp=sharing
